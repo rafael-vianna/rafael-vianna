@@ -6,11 +6,12 @@ Colégio Santa Maria Goretti
 - 👀 Tenho 17 anos 
 - 🌱 Estudando no 1° ano do ensino médio..
 - 🥰 A procura de novas amizades...
+
 - ⚽️ Amo mt futebol
+
 De: Rio de Janeiro
 
-🤭Morando: Maringá-pr
-😁Bora hexa Brasilll..
+Morando: Maringá-pr
 
 
 <!---
